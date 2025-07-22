@@ -1,0 +1,1 @@
+at west, on the highest slope of the town. Lived by lighthouse keeper, and old man in his 50’s.

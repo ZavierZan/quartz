@@ -1,0 +1,1 @@
+Located a rocky terrain. Old man Jeofrey and his team do the mining for the living. also have copper and iron deposits.

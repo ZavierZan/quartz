@@ -1,0 +1,1 @@
+At the south from the lighthouse. Owned by the mayor's friend and passed to his son. Manage by Mason brothers.

@@ -1,0 +1,5 @@
+Townia, a port town built at the coastal valley. Sink toward to deep shoreline with an ocean filled with coastal and giant rock. Small boat won't never have a chance to break through the wave, and the large one, halted by reef. The shore is covered by large mountain range from both east and west. Caves and caverns are form which too dangerous to explore.
+
+Townia located at primary east side of the shore, with a beaming lighthouse on a cliff at west. A river ran across the town to the sea flowing from the mountains. A rocky terrain is present at the west of the town, supplying with quarry for building materials.
+
+Townia has small population of about 300, with not much tourist footprint. people make a living out of shellfish from sea and fishing in river. It's usually sunny and windy ith frequent rainstorm. there're windmill at the outskirt of the town, provide enough electricity for the whole town. There's a farm to the east of the town, providing with wheat and vegetation with their own watermill..

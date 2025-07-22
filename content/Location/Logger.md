@@ -1,0 +1,1 @@
+Located close by to the farm. A family of 3 lived there, making a living out of wood cutting and carpentry.
